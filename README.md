@@ -1,0 +1,2 @@
+# HELLOThanksForStoppingByMyFirstRepositoryHopeYouLikeMySarcasmSeeYouLaterGator
+The Never Ending Frustration Rubik’s Cube
